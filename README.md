@@ -4,3 +4,4 @@
 
  - [Where I've been](https://github.com/JohnTWinskas/John-Thomas-Winskas-John-Thomas-Winskas-Sole-Proprietorship-Github-Website/blob/main/John%20Thomas%20Winskas%20Where%20I've%20been.md)
  - [Where I Am](https://github.com/JohnTWinskas/John-Thomas-Winskas-John-Thomas-Winskas-Sole-Proprietorship-Github-Website/blob/main/John%20Thomas%20Winskas%20Where%20I%20Am.md)
+- [Where I Plan To Go.](https://sites.google.com/view/johnthomaswinskasportfolio/where-i-plan-to-go?authuser=0)
