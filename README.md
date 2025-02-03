@@ -7,7 +7,6 @@
  - ###### Evacuation Level: none
  - ###### Emergency Address: 2012 E. Hernandez St. Pensacola, FL, 32503
  - ###### Pensacola Emergency Shelter/Evacuation address: Pensacola Bay Center, 201 East Gregory Street Pensacola, Florida 32502 
- - ###### 
 
 ## [Where I've been](https://github.com/JohnTWinskas/John-Thomas-Winskas-John-Thomas-Winskas-Sole-Proprietorship-Github-Website/blob/main/John%20Thomas%20Winskas%20Where%20I've%20been.md) [Where I Am](https://github.com/JohnTWinskas/John-Thomas-Winskas-John-Thomas-Winskas-Sole-Proprietorship-Github-Website/blob/main/John%20Thomas%20Winskas%20Where%20I%20Am.md) [Where I Plan To Go.](https://sites.google.com/view/johnthomaswinskasportfolio/where-i-plan-to-go?authuser=0)
 ### Promulgation Statement
