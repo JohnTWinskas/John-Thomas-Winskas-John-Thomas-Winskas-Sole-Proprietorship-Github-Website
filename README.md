@@ -1,13 +1,13 @@
 # John-Thomas-Winskas-John-Thomas-Winskas-Sole-Proprietorship-Github-Website
 #### Welcome to the John Thomas Winskas Github-Website 
- - ##### Affiliated with The John Thomas Winskas/ John Thomas Winskas Sole Proprietorship Website
+ - ##### Affiliated with The [John Thomas Winskas / John Thomas Winskas Sole Proprietorship Github Website](https://sites.google.com/view/johnthomaswinskasportfolio/john-thomas-winskas-website?authuser=0)
 
  - ###### Contact: Johntwinskas@gmail.com 
  - ###### Current Address: 1517 E. Lloyd St. Pensacola, FL, 32503
  - ###### Evacuation Level: none
  - ###### Emergency Address: 2012 E. Hernandez St. Pensacola, FL, 32503
  - ###### Pensacola Emergency Shelter/Evacuation address: Pensacola Bay Center, 201 East Gregory Street Pensacola, Florida 32502 
- - ###### [John Thomas Winskas / John Thomas Winskas Sole Proprietorship Github Website](https://sites.google.com/view/johnthomaswinskasportfolio/john-thomas-winskas-website?authuser=0)
+ - ###### 
 
 ## [Where I've been](https://github.com/JohnTWinskas/John-Thomas-Winskas-John-Thomas-Winskas-Sole-Proprietorship-Github-Website/blob/main/John%20Thomas%20Winskas%20Where%20I've%20been.md) [Where I Am](https://github.com/JohnTWinskas/John-Thomas-Winskas-John-Thomas-Winskas-Sole-Proprietorship-Github-Website/blob/main/John%20Thomas%20Winskas%20Where%20I%20Am.md) [Where I Plan To Go.](https://sites.google.com/view/johnthomaswinskasportfolio/where-i-plan-to-go?authuser=0)
 ### Promulgation Statement
