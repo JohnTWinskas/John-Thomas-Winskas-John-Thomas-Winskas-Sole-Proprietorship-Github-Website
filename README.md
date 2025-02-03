@@ -1,6 +1,6 @@
 # John-Thomas-Winskas-John-Thomas-Winskas-Sole-Proprietorship-Github-Website
 #### Welcome to the John Thomas Winskas Github-Website 
- - Affiliated with The John Thomas Winskas/ John Thomas Winskas Sole Proprietorship Website
+ - ##### Affiliated with The John Thomas Winskas/ John Thomas Winskas Sole Proprietorship Website
 
  - ###### Contact: Johntwinskas@gmail.com 
  - ###### Current Address: 1517 E. Lloyd St. Pensacola, FL, 32503
